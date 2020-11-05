@@ -1,12 +1,10 @@
-# niugua
-牛瓜视频最新地址请下拉查看！请牢记永久域名 niugua.tv
-:heart: :point_right: 【地址一】 ：https://www.niugua01.com
+:heart: :point_right: 【地址一】 ：https://www.niugua02.com
 ------
-:heart: :point_right: 【地址二】 ：https://www.niugua01.com
+:heart: :point_right: 【地址二】 ：https://www.niugua02.com
 ------
-:heart: :point_right: 【地址三】 ：https://www.niugua01.com
+:heart: :point_right: 【地址三】 ：https://www.niugua02.com
 ------
-:heart: :point_right: 【地址四】 ：https://www.niugua01.com
+:heart: :point_right: 【地址四】 ：https://www.niugua02.com
 ------
 :heart: :point_right: 【邮箱联系方式】 ：niugua2020@gmail.com
 ------
