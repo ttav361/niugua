@@ -1,10 +1,10 @@
-:heart: :point_right: 【地址一】 ：https://niugua06.com/
+:heart: :point_right: 【地址一】 ：https://niugua11.com/
 ------
-:heart: :point_right: 【地址二】 ：https://niugua06.com/
+:heart: :point_right: 【地址二】 ：https://niugua11.com/
 ------
-:heart: :point_right: 【地址三】 ：https://niugua06.com/
+:heart: :point_right: 【地址三】 ：https://niugua11.com/
 ------
-:heart: :point_right: 【地址四】 ：https://niugua06.com/
+:heart: :point_right: 【地址四】 ：https://niugua11.com/
 ------
 :heart: :point_right: 【邮箱联系方式】 ：niugua2020@gmail.com
 ------
